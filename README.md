@@ -28,6 +28,7 @@ Je suis freelance polyvalent spécialisé dans :
 - Résolution de problèmes
 
 ## 📞 Contact
-Email :  
+Email : mandresyrazls@gmail.com
+Malt:https://www.malt.fr/profile/mandresydaniel?overview
 WhatsApp :# portfolio-freelance
 Mon portfolio professionnel : bureautique, rédaction, traduction, Canva, service client et trading (éducation).
